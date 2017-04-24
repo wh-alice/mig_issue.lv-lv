@@ -1,0 +1,1 @@
+© 2017 Microsoft. Visas tiesības paturētas.

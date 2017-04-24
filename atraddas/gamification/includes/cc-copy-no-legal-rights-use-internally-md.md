@@ -1,0 +1,1 @@
+Ar šo dokumentu jums netiek piešķirtas nekādas juridiskas tiesības ne uz vienu intelektuālo īpašumu nevienā Microsoft produktā. Jūs drīkstat kopēt un izmantot šo dokumentu iekšējām uzziņas vajadzībām.

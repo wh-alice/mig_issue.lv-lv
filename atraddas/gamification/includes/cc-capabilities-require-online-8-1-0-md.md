@@ -1,0 +1,1 @@
+Šajā risinājumā paredzētajām iespējām ir nepieciešams Microsoft Dynamics CRM Online 2016 1. atjauninājums.

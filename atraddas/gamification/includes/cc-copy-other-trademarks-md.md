@@ -1,0 +1,1 @@
+Visas pārējās preču zīmes ir to attiecīgo īpašnieku īpašums.

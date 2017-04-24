@@ -1,0 +1,1 @@
+Iespējams, ka videoklipi un elektroniskās grāmatas ir tikai angļu valodā. Turklāt iespējams, ka, noklikšķinot uz saitēm, tiksiet pārvirzīts uz ASV vietni, kuras saturs ir angļu valodā.

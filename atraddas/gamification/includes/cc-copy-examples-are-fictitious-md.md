@@ -1,0 +1,1 @@
+Daži šajā dokumentā minētie piemēri ir iekļauti tikai paskaidrošanas nolūkos un ir izdomāti. Tiem nav nekādas tiešas vai netiešas saistības vai sakarības ar reāliem notikumiem vai personām.

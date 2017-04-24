@@ -1,0 +1,1 @@
+Šis dokuments ir nodrošināts “tāds, kāds tas ir”. Šajā dokumentā paustā informācija un uzskati, tostarp vietrāži URL un citas atsauces uz interneta vietnēm, var tikt mainīti bez brīdinājuma.
